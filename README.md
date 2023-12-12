@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @davidsilva1997
-- 👨‍🎓 Bachelor of Computer Science @at Instituto Superior de Engenharia de Coimbra
+- 👨‍🎓 Bachelor of Computer Science at Instituto Superior de Engenharia de Coimbra
 - 👀 Open to work !!
 - 📫 You can reach me: david_goncalvessilva@hotmail.com
